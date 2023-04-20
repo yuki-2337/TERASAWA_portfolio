@@ -1,1 +1,0 @@
-# TERASAWA_portfolio
